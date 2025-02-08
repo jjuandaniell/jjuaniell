@@ -1,2 +1,2 @@
 # jjuaniell
-i am a simple student of ingeniring in sistems
+los beneficios de github pro aun no los recibo, pero investigando y pudiendo observar algunos de los beneficios prometidos los considero bastante buenos para nosotros como estudiantes, incluso para algunos profecionales pueden ser de gran utilidad, vi que puedo utilizar algunas funciones de notion que son de paga, lo cual me interesa porque tenia pensado ocupar notion para llevar orden de las cosas que debo de hacer.
